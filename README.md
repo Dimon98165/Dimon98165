@@ -7,6 +7,5 @@
 - [Tiktok] https://www.tiktok.com/@nair_creator
 - [Github] https://github.com/Dimon98165
 - [Discord] fox_furry / Dimon98165
-- [Roblox] https://www.roblox.com/users/2638898998/profile
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
